@@ -1,4 +1,4 @@
-# hello! i'm niko
+# about me ! 
 
 > I strongly identify as Vinegar Doppio from JJBA,  and I’m rather uncomfortable with doubles, but that doesn’t mean you can’t interact!!
 
